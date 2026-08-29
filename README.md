@@ -1,2 +1,1 @@
 # RP
-Private Server RP
